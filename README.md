@@ -1,2 +1,2 @@
-# Internship--Sachin-Suresh-
+# Internship-Sachin-Suresh
 Internship @ IKM
